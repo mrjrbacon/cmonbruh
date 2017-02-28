@@ -1,3 +1,0 @@
-# cmonbruh
-idk 
-wdwadwad
